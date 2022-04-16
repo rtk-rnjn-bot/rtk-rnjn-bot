@@ -1,0 +1,3 @@
+- 👋 Hi, I'm Ritik Ranjan | Main account: <https://github.com/rtk-rnjn>
+- This account is only for educational purpose.
+- To contact me, consider visiting the main profile.
